@@ -1,0 +1,1 @@
+This is the readme file of this trial repo and files, enjoy your learning and keep it up king.. i mean keep it up yo piece of shit holidays are almost over gang!!
